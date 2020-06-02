@@ -1,1 +1,0 @@
-# VershVl.github.io
